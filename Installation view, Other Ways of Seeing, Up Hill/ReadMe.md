@@ -1,0 +1,1 @@
+This series of works is inspired by a variety of perspectives. I used video capture to shoot from the angles of my ankles, head, and arms. By recording the up hill and down hill hiking trajectory, I finally combined the edited video with the read-made sculpture to try to explore a different way of viewing. 
